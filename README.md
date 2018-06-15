@@ -9,12 +9,12 @@ http://examresultsuniv.blogspot.com/2018/04/blog-post_21.html
 
 ## Screenshots:
 
-![Image]()
+![Image](https://github.com/fawazahmed0/Student-degree-eligibility-check-JNTUH/blob/master/images/-2018-jun-15-015.jpg)
 
-![Image]()
+![Image](https://github.com/fawazahmed0/Student-degree-eligibility-check-JNTUH/blob/master/images/-2018-jun-15-016.jpg)
 
-![Image]()
+![Image](https://github.com/fawazahmed0/Student-degree-eligibility-check-JNTUH/blob/master/images/-2018-jun-15-017.jpg)
 
-![Image]()
+![Image](https://github.com/fawazahmed0/Student-degree-eligibility-check-JNTUH/blob/master/images/-2018-jun-15-018-%20a.jpg)
 
-![Image]()
+![Image](https://github.com/fawazahmed0/Student-degree-eligibility-check-JNTUH/blob/master/images/-2018-jun-15-018b.jpg)
